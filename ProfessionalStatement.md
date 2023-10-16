@@ -1,0 +1,1 @@
+I am a talkative CS newbie, which is enthusiastic about being a detective and finding the flaws and holes in systems, before or after they happen. I would like to help create applications that are safe to use for people and whole organizations.
